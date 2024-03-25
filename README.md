@@ -2,6 +2,6 @@
 - 👀 I’m beliver in ideas of free will and evolution
 - 🌱 I’m currently enjoying our world
 - 💞️ I’m looking to collaborate on it's pieceful future
-- 📫 How to reach me emailto:Go0gleNotHired2017@gmail.com
-- 😄 Pronouns: he
+- 📫 How to reach me Go0gleNotHired2017@gmail.com
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: stopped being a hacker
