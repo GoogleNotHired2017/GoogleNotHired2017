@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GoogleNotHired2017
 - 👀 I’m beliver in ideas of free will and evolution
-- 🌱 I’m currently learning our world
-- 💞️ I’m looking to collaborate on it's pieceful picture
+- 🌱 I’m currently enjoying our world
+- 💞️ I’m looking to collaborate on it's pieceful future
 - 📫 How to reach me emailto:Go0gleNotHired2017@gmail.com
 - 😄 Pronouns: he
 - ⚡ Fun fact: stopped being a hacker
